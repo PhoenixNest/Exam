@@ -1,2 +1,2 @@
-# National Entrance Test For MA Candidates Exam
+# National Entrance Test For MA Candidates
  
